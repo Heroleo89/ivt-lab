@@ -1,2 +1,2 @@
 # ivt-lab
-Valtoztatas
+Valtoztatas asdasda 
